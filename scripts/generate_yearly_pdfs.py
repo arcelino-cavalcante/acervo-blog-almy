@@ -17,6 +17,11 @@ def main():
         year = p.get('year')
         if not year:
             continue
+            
+        text_content = p.get('text', '').strip()
+        if not text_content or text_content == "(Conteudo indisponivel)":
+            continue
+
         if year not in by_year:
             by_year[year] = []
         
