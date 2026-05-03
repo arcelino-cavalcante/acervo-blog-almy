@@ -18,6 +18,8 @@ const pageInfo = q('#pageInfo');
 const pageSizeEl = q('#pageSize');
 const prevPageBtn = q('#prevPage');
 const nextPageBtn = q('#nextPage');
+const yearDownloadSection = q('#yearDownloadSection');
+const downloadYearBtn = q('#downloadYearBtn');
 
 function normalize(str) {
   return (str || '')
@@ -123,6 +125,14 @@ function applyFilters() {
     if (!term) return true;
     return normalize(post.search_text).includes(term);
   });
+
+  if (year) {
+    yearDownloadSection.style.display = 'block';
+    downloadYearBtn.href = `./yearly_pdfs/${year}.pdf`;
+    downloadYearBtn.textContent = `Baixar Compilado de ${year} (Todos os PDFs)`;
+  } else {
+    yearDownloadSection.style.display = 'none';
+  }
 
   state.currentPage = 1;
   renderPage();
