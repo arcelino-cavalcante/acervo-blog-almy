@@ -165,11 +165,35 @@ body {
 
 @media (max-width: 740px) {
   .controls {
-    grid-template-columns: 1fr;
+    grid-template-columns: 1fr 1fr;
+  }
+
+  #searchInput, #labelFilter, #clearBtn {
+    grid-column: 1 / -1;
   }
 
   .pagination {
     flex-direction: column;
-    align-items: flex-start;
+    align-items: stretch;
+    gap: 1rem;
+  }
+
+  .pager-info {
+    text-align: center;
+  }
+
+  .pager-actions {
+    flex-wrap: wrap;
+    justify-content: center;
+    gap: 0.8rem;
+  }
+
+  .actions {
+    flex-direction: column;
+  }
+
+  .btn {
+    text-align: center;
+    padding: 0.65rem;
   }
 }
