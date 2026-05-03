@@ -1,0 +1,18 @@
+---
+title: "Jesus, o mais importante convidado"
+published: 2025-11-08T12:59:00.003-03:00
+updated: 2025-11-08T12:59:53.440-03:00
+url: https://almyalves.blogspot.com/2025/11/jesus-o-mais-importante-convidado.html
+slug: jesus-o-mais-importante-convidado.html
+labels: [Casamento, Jesus convidado, Primeiro milagre de Jesus.]
+---
+
+# Jesus, o mais importante convidado
+
+Publicado em: 2025-11-08T12:59:00.003-03:00
+
+Link original: https://almyalves.blogspot.com/2025/11/jesus-o-mais-importante-convidado.html
+
+## Conteudo (HTML original)
+
+<p></p><ul style="text-align: left;"><li>&nbsp;“Três dias depois, houve um casamento em Caná da Galiléia, achando-se ali a mãe de Jesus. Jesus também foi convidado, com os seus discípulos, para o casamento. Tendo acabado o vinho, a mãe de Jesus lhe disse: Eles não têm mais vinho. Mas Jesus lhe disse: Mulher, que tenho eu contigo? Ainda não é chegada a minha hora. Então, ela falou aos serventes: Fazei tudo o que ele vos disser. Estavam ali seis talhas de pedra, que os judeus usavam para as purificações, e cada uma levava duas ou três metretas. Jesus lhes disse: Enchei de água as talhas. E eles as encheram totalmente. Então, lhes determinou: Tirai agora e levai ao mestre-sala. Eles o fizeram. Tendo o mestre-sala provado a água transformada em vinho (não sabendo donde viera, se bem que o sabiam os serventes que haviam tirado a água), chamou o noivo e lhe disse: Todos costumam pôr primeiro o bom vinho e, quando já beberam fartamente, servem o inferior; tu, porém, guardaste o bom vinho até agora. Com este, deu Jesus princípio a seus sinais em Caná da Galiléia; manifestou a sua glória, e os seus discípulos creram nele.” (Jo 2:1-11 RA)</li></ul><div><br /></div><div><ol style="text-align: left;"><li><b>A importância do casamento:</b>&nbsp;“Melhor é serem dois do que um, porque têm melhor paga do seu trabalho. Porque se caírem, um levanta o companheiro; ai, porém, do que estiver só; pois, caindo, não haverá quem o levante. Também, se dois dormirem juntos, eles se aquentarão; mas um só como se aquentará? Se alguém quiser prevalecer contra um, os dois lhe resistirão; o cordão de três dobras não se rebenta com facilidade.” (Ec 4:9-12 RA)</li><li><b>A importância de ter Jesus entre os convidados:</b>&nbsp;“Três dias depois, houve um casamento em Caná da Galiléia, achando-se ali a mãe de Jesus. Jesus também foi convidado, com os seus discípulos, para o casamento.” (Jo 2:1-2 RA)</li><li><b>A importância da intervenção de Jesus:</b>&nbsp;“Estavam ali seis talhas de pedra, que os judeus usavam para as purificações, e cada uma levava duas ou três metretas. Jesus lhes disse: Enchei de água as talhas. E eles as encheram totalmente. Então, lhes determinou: Tirai agora e levai ao mestre-sala. Eles o fizeram. Tendo o mestre-sala provado a água transformada em vinho (não sabendo donde viera, se bem que o sabiam os serventes que haviam tirado a água), chamou o noivo e lhe disse: Todos costumam pôr primeiro o bom vinho e, quando já beberam fartamente, servem o inferior; tu, porém, guardaste o bom vinho até agora. Com este, deu Jesus princípio a seus sinais em Caná da Galiléia; manifestou a sua glória, e os seus discípulos creram nele.” (Jo 2:6-11 RA)</li><li>Lições:&nbsp;</li></ol><ul style="text-align: left;"><li>Ninguém entende mais de casamento do que o criador da família, por isso é importante ter Jesus em nossas casas;</li><li>Quando o Senhor está presente acontecem milagres;</li><li>Deixe Jesus entrar em sua casa e em sua vida: “Eis que estou à porta e bato; se alguém ouvir a minha voz e abrir a porta, entrarei em sua casa e cearei com ele, e ele, comigo.” (Ap 3:20 RA)</li></ul></div><p></p>

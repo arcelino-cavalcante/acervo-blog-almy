@@ -1,0 +1,66 @@
+<!doctype html>
+<html lang="pt-BR">
+<head>
+  <meta charset="utf-8" />
+  <meta name="viewport" content="width=device-width,initial-scale=1" />
+  <title>Acervo Offline - Blog Almy Alves</title>
+  <link rel="stylesheet" href="./styles.css" />
+</head>
+<body>
+  <header class="top">
+    <h1>Acervo Offline - Blog Almy Alves</h1>
+    <p>Todos os artigos extraidos, com busca local e acesso aos PDFs.</p>
+  </header>
+
+  <section class="controls">
+    <input id="searchInput" type="search" placeholder="Pesquisar por titulo, trecho, label..." />
+    <select id="yearFilter">
+      <option value="">Todos os anos</option>
+    </select>
+    <select id="monthFilter">
+      <option value="">Todos os meses</option>
+    </select>
+    <select id="labelFilter">
+      <option value="">Todas as labels</option>
+    </select>
+    <button id="clearBtn" type="button">Limpar</button>
+  </section>
+
+  <section class="summary">
+    <span id="countLabel">Carregando...</span>
+  </section>
+
+  <main id="results" class="results"></main>
+
+  <section class="pagination">
+    <div class="pager-info" id="pageInfo">Pagina 1 de 1</div>
+    <div class="pager-actions">
+      <label for="pageSize">Por pagina</label>
+      <select id="pageSize">
+        <option value="12">12</option>
+        <option value="24" selected>24</option>
+        <option value="48">48</option>
+        <option value="96">96</option>
+      </select>
+      <button id="prevPage" type="button">Anterior</button>
+      <button id="nextPage" type="button">Proxima</button>
+    </div>
+  </section>
+
+  <template id="cardTpl">
+    <article class="card">
+      <h2 class="title"></h2>
+      <p class="meta"></p>
+      <p class="labels"></p>
+      <p class="excerpt"></p>
+      <div class="actions">
+        <a class="btn pdf" target="_blank" rel="noopener">Abrir PDF</a>
+        <a class="btn md" target="_blank" rel="noopener">Abrir Markdown</a>
+        <a class="btn original" target="_blank" rel="noopener">Post Original</a>
+      </div>
+    </article>
+  </template>
+
+  <script src="./app.js"></script>
+</body>
+</html>

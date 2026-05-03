@@ -1,0 +1,18 @@
+---
+title: "Gênesis 43. Tema: Quando a dificuldade persiste, persista em buscar ajuda."
+published: 2022-09-19T06:11:00.000-03:00
+updated: 2022-09-19T06:11:05.947-03:00
+url: https://almyalves.blogspot.com/2022/09/genesis-43-tema-quando-dificuldade.html
+slug: genesis-43-tema-quando-dificuldade.html
+labels: [Persista em busca ajuda]
+---
+
+# Gênesis 43. Tema: Quando a dificuldade persiste, persista em buscar ajuda.
+
+Publicado em: 2022-09-19T06:11:00.000-03:00
+
+Link original: https://almyalves.blogspot.com/2022/09/genesis-43-tema-quando-dificuldade.html
+
+## Conteudo (HTML original)
+
+<p>&nbsp;<span style="font-family: times;">“ A fome persistia gravíssima na terra. &nbsp;Tendo eles acabado de consumir o cereal que trouxeram do Egito, disse-lhes seu pai: Voltai, comprai-nos um pouco de mantimento.” (Gn 43:1-2 RA)</span></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"><span style="color: black;"><o:p><span style="font-family: times;">&nbsp;</span></o:p></span></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"><span style="color: black;"><span style="font-family: times;"><span style="mso-spacerun: yes;">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span>Existem problemas que perduram por muito tempo e requererão que novas atitudes sejam tomadas para que continuemos nossa jornada e consigamos chegar ao fim do período de crise.<o:p></o:p></span></span></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"><span style="color: black;"><span style="font-family: times;"><span style="mso-tab-count: 1;">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span>Os sete anos de forme vividos pelo mundo nos dias de Jacó foram muito desgastantes para&nbsp;<span style="mso-spacerun: yes;">&nbsp;</span>muitos povos, mas também proporcionaram a revelação de um dos maiores administradores da história, José, e do poder do Deus a quem ele servia.<o:p></o:p></span></span></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"><span style="color: black;"><span style="font-family: times;"><span style="mso-tab-count: 1;">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span>Mas, como nem tudo são flores, muitos sofreram profundamente e os filhos de Jacó precisaram voltar ao Egito para comprar mais alimentos, a fim de que suas famílias tivessem como sobreviver.<o:p></o:p></span></span></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"><span style="color: black;"><span style="font-family: times;"><span style="mso-tab-count: 1;">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span>Se você está atravessando seus “sete anos” de deserto,&nbsp;<span style="mso-spacerun: yes;">&nbsp;</span>entenda que precisará tomar e retomar atitudes que serão necessárias para preservação de sua vida, famílias, igreja, empresa, etc.<o:p></o:p></span></span></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"><span style="color: black;"><span style="font-family: times;"><span style="mso-spacerun: yes;">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span>Por isso, tenha coragem e disposição para se humilhar e buscar ajuda quantas vezes for necessário, pois de sua perseverança em fazer o bem dependerão muitas vidas. Lembre-se</span></span><span style="font-family: times;">: Quando a dificuldade persiste, persista em buscar ajuda.</span></p>

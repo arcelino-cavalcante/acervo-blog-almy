@@ -1,0 +1,18 @@
+---
+title: "1 Timóteo 1. Tema: Discípulos de confiança."
+published: 2020-10-17T09:06:00.001-03:00
+updated: 2020-10-17T09:06:22.579-03:00
+url: https://almyalves.blogspot.com/2020/10/1-timoteo-1-tema-discipulos-de-confianca.html
+slug: 1-timoteo-1-tema-discipulos-de-confianca.html
+labels: [Discípulos de confiança, falsos mestres, proteja a fé]
+---
+
+# 1 Timóteo 1. Tema: Discípulos de confiança.
+
+Publicado em: 2020-10-17T09:06:00.001-03:00
+
+Link original: https://almyalves.blogspot.com/2020/10/1-timoteo-1-tema-discipulos-de-confianca.html
+
+## Conteudo (HTML original)
+
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Lendo com atenção o Novo Testamento, percebemos como a Igreja Cristã em Éfeso requeria uma&nbsp; atenção diferenciada. Tanto Paulo,&nbsp; quanto Timóteo e até o próprio Jesus (Ap 2), procuraram ensinar aqueles cristãos a se portarem como discípulos do Senhor. Mas também, existiam os mestres do engano, que procuravam distorcer o Evangelho e perturbar a fé daqueles irmãos. Tais indivíduos precisariam ser confrontados, desmascarados e calados perante a Igreja, pois falavam do que não entendiam como se fossem profundos conhecedores.&nbsp;</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Para proteger a Igreja e afugentar tais pessoas (falsos mestres), Paulo enviou Timóteo, homem de sua confiança, conhecedor das Escrituras e filho na fé, pois, para missões especiais não podemos colocar qualquer um.&nbsp;</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;Você é uma pessoa fiel e digna de ser enviada para cumprir alguma&nbsp; missão? Você tem ao seu lado pessoas fieis, a quem você confiaria as mais difíceis missões? Paulo sabia que Deus escolhe a dedo aqueles a quem quer enviar, pois o Evangelho é coisa séria e não faltam aqueles que querem ampliar a porta, ou estreitá-la. Não faltam aqueles que querem acrescentar ou subtrair conteúdos. Estes precisam ser emudecidos perante a Igreja.&nbsp;</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;Esta luta e zelo acontecia no passado, acontece no presente e acontecerá no futuro, até que Jesus volte. Alguns dos distorcedores da verdade serão punidos severamente como Himeneu e Alexandre que foram entregues à satanás, outros sofrerão duras penas como doenças, sonos espirituais e morte (1 Co 11),outros terão que ser convidados, ou até estimulados, a sair da Igreja, para que a fé de muitos seja preservada pura. Mas também, existirão aqueles que por darem ouvidos aos mestres da verdade serão curados e voltarão a ter uma fé saudável, onde a glória será dada só a Deus, a Bíblia será a única regra de fé e prática, a salvação será&nbsp; vivenciada unicamente em Jesus, tudo pela graça mediante a fé.&nbsp;</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;Proteja sua fé dos falsos mestres! Proteja a igreja dos falsos mestres! Cuidado para não ser um falso mestre! Seja um discípulo de confiança do Senhor Jesus.</p><p></p><div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh2fXN4o4gFF8IhbVh3u9XPPm7No2FA9aEB_ImZIs8Cx_i6JbMsEzTW6vYPWf9mluYfaWOM-TvOmtdvsgv7fupAVMUVUeEkFitMeiPQmeVonW_n5UKInDpyoNF_x7N15RmBcv9DB4e37fI/" style="margin-left: 1em; margin-right: 1em;"><img data-original-height="228" data-original-width="350" height="130" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh2fXN4o4gFF8IhbVh3u9XPPm7No2FA9aEB_ImZIs8Cx_i6JbMsEzTW6vYPWf9mluYfaWOM-TvOmtdvsgv7fupAVMUVUeEkFitMeiPQmeVonW_n5UKInDpyoNF_x7N15RmBcv9DB4e37fI/w200-h130/image.png" width="200" /></a></div><br /><br /><p></p>

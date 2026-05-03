@@ -1,0 +1,18 @@
+---
+title: "Salmo 34. Tema: Sob os cuidados de Deus."
+published: 2024-05-04T05:44:00.001-03:00
+updated: 2024-05-04T05:45:55.259-03:00
+url: https://almyalves.blogspot.com/2024/05/salmo-34-tema-sob-os-cuidados-de-deus.html
+slug: salmo-34-tema-sob-os-cuidados-de-deus.html
+labels: [cuidado de Deus, expectativas  de vida., Proteção divina, Segurança]
+---
+
+# Salmo 34. Tema: Sob os cuidados de Deus.
+
+Publicado em: 2024-05-04T05:44:00.001-03:00
+
+Link original: https://almyalves.blogspot.com/2024/05/salmo-34-tema-sob-os-cuidados-de-deus.html
+
+## Conteudo (HTML original)
+
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;<span style="font-family: Symbol; text-indent: -18pt;">·<span style="font-family: &quot;Times New Roman&quot;; font-feature-settings: normal; font-kerning: auto; font-optical-sizing: auto; font-size: 7pt; font-stretch: normal; font-variant-alternates: normal; font-variant-east-asian: normal; font-variant-numeric: normal; font-variant-position: normal; font-variation-settings: normal; line-height: normal;">&nbsp; &nbsp;</span></span><span style="font-family: &quot;Times New Roman&quot;, serif; text-indent: -18pt;">“<b>&nbsp;</b>Os olhos do SENHOR repousam sobre os justos, e os seus ouvidos estão abertos ao seu clamor.&nbsp;<b>16</b>&nbsp;&nbsp;O rosto do SENHOR está contra os que praticam o mal, para lhes extirpar da terra a memória.&nbsp;<b>17</b>&nbsp;&nbsp;Clamam os justos, e o SENHOR os escuta e os livra de todas as suas tribulações.&nbsp;<b>18</b>&nbsp;&nbsp;Perto está o SENHOR dos que têm o coração quebrantado e salva os de espírito oprimido.&nbsp;<b>19</b>&nbsp;&nbsp;Muitas são as aflições do justo, mas o SENHOR de todas o livra.&nbsp;<b>20</b>&nbsp;&nbsp;Preserva-lhe todos os ossos, nem um deles sequer será quebrado.&nbsp;<b>21</b>&nbsp;&nbsp;O infortúnio matará o ímpio, e os que odeiam o justo serão condenados.&nbsp;<b>22</b>&nbsp;&nbsp;O SENHOR resgata a alma dos seus servos, e dos que nele confiam nenhum será condenado.” (Sl 34:15-22 RA)</span></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"><span style="color: black; font-family: &quot;Times New Roman&quot;,serif; mso-font-kerning: 0pt;">&nbsp;</span><span style="font-family: &quot;Times New Roman&quot;, serif;">&nbsp; &nbsp; &nbsp; &nbsp; &nbsp;</span><span style="font-family: &quot;Times New Roman&quot;, serif;">Num mundo de tantas inseguranças, incertezas e oscilações, ter um porto seguro, um refúgio secreto, uma fortaleza para se proteger é um grande privilégio.</span></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"><span style="font-family: &quot;Times New Roman&quot;,serif;"><span style="mso-spacerun: yes;">&nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;</span>Davi sabia muito bem a riqueza destas realidades, por isso, em vários salmos destacava a presença e o agir protetor do Senhor em sua vida e na daqueles que Nele esperam, pois escuta as orações, livra das tribulações, preserva os ossos e resgata a alma dos que lhe pertencem.<o:p></o:p></span></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"><span style="font-family: &quot;Times New Roman&quot;,serif;"><span style="mso-spacerun: yes;">&nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;</span>Deus conhece e cuida dos que são seus!! Desfrute destes privilégios, pois sentir-se seguro gerará expectativas positivas de vida, pois sabemos quem é o Senhor e que tudo faz por aqueles que Nele esperam. Você está sob os cuidados de Deus, Aleluia!!!</span></p>

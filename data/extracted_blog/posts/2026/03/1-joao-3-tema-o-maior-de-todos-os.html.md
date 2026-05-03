@@ -1,0 +1,18 @@
+---
+title: "1 João 3. Tema: O maior de todos os títulos."
+published: 2026-03-20T17:59:00.003-03:00
+updated: 2026-03-20T17:59:34.383-03:00
+url: https://almyalves.blogspot.com/2026/03/1-joao-3-tema-o-maior-de-todos-os.html
+slug: 1-joao-3-tema-o-maior-de-todos-os.html
+labels: [coerdeiros com Cristo., Filhos de Deus, Herdeiros de Deus]
+---
+
+# 1 João 3. Tema: O maior de todos os títulos.
+
+Publicado em: 2026-03-20T17:59:00.003-03:00
+
+Link original: https://almyalves.blogspot.com/2026/03/1-joao-3-tema-o-maior-de-todos-os.html
+
+## Conteudo (HTML original)
+
+<p></p><ul style="text-align: left;"><li>“Vede que grande amor nos tem concedido o Pai, a ponto de sermos chamados filhos de Deus; e, de fato, somos filhos de Deus. Por essa razão, o mundo não nos conhece, porquanto não o conheceu a ele mesmo. Amados, agora, somos filhos de Deus, e ainda não se manifestou o que haveremos de ser. Sabemos que, quando ele se manifestar, seremos semelhantes a ele, porque haveremos de vê-lo como ele é. E a si mesmo se purifica todo o que nele tem esta esperança, assim como ele é puro.” (1Jo 3:1-3 RA)</li></ul><p></p><p><span>&nbsp;&nbsp; &nbsp;</span><span>&nbsp;&nbsp; &nbsp;</span><span>&nbsp;&nbsp; &nbsp;</span>Desde a queda, títulos, posições, aplausos, homenagens são necessidades dos homens caídos, pois só assim se sentem importantes, visto que fomos destituídos da glória de Deus.</p><p></p><ul style="text-align: left;"><li>“Porque todos pecaram e destituídos estão da glória de Deus,” (Rm 3:23 RC)</li></ul><p></p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; A partir daquele trágico evento, os serem humanos tiveram a imagem e semelhança de Deus corrompida e passaram a trazer a imagem e semelhança de Adão.</p><p></p><ul style="text-align: left;"><li>“Viveu Adão cento e trinta anos, e gerou um filho à sua semelhança, conforme a sua imagem, e lhe chamou Sete.” (Gn 5:3 RA)</li></ul><p></p><p><span>&nbsp;&nbsp; &nbsp;</span><span>&nbsp;&nbsp; &nbsp;</span><span>&nbsp; &nbsp; </span>Desde então, o homem passou a merecer e receber adjetivos como pecador, perdido, criatura, filho do diabo, etc. Mas, graças a obra vicária de Jesus e nossa adoção, pudemos passar a ser chamados filhos de Deus.</p><p></p><ul style="text-align: left;"><li>“Porque não recebestes o espírito de escravidão, para viverdes, outra vez, atemorizados, mas recebestes o espírito de adoção, baseados no qual clamamos: Aba, Pai.” (Rm 8:15 RA)</li></ul><p></p><p><span style="white-space: normal;"><span style="white-space: pre;">	</span>Hoje, somos vistos por Deus e podemos nos ver como herdeiros de Deus, coerdeiros de Cristo e consequentemente filhos de Deus, Aleluia! O Eterno, Santo, Senhor dos senhores, Dono de todas as coisas é nosso Pai e um dia moraremos para sempre com eles.</span></p><p></p><ul style="text-align: left;"><li>“Não se turbe o vosso coração; credes em Deus, crede também em mim. Na casa de meu Pai há muitas moradas. Se assim não fora, eu vo-lo teria dito. Pois vou preparar-vos lugar. E, quando eu for e vos preparar lugar, voltarei e vos receberei para mim mesmo, para que, onde eu estou, estejais vós também.” (Jo 14:1-3 RA)</li></ul><p></p><p><span style="white-space: normal;"><span style="white-space: pre;">	</span>Alegre-se por sua filiação! Pois ainda para muitos você seja um anônimo, para Deus você é um dos Seus filhos. Embora um dia fôssemos como Mefibosete, filho de Jônatas, que morava em Lodebar (lugar de vergonha), fomos chamados pelo Rei dos rei, para sentar à mesa e comermos do pão e bebermos do cálice, Daquele que muito nos amou.&nbsp;</span>Hoje você é um filho de Deus! Aleluia!!</p>

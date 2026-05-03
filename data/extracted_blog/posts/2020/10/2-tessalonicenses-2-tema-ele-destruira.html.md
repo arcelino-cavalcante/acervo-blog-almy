@@ -1,0 +1,18 @@
+---
+title: "2 Tessalonicenses 2. Tema: Ele destruirá ele."
+published: 2020-10-15T07:30:00.003-03:00
+updated: 2020-10-15T07:30:29.478-03:00
+url: https://almyalves.blogspot.com/2020/10/2-tessalonicenses-2-tema-ele-destruira.html
+slug: 2-tessalonicenses-2-tema-ele-destruira.html
+labels: [Anticristo, Besta, engano]
+---
+
+# 2 Tessalonicenses 2. Tema: Ele destruirá ele.
+
+Publicado em: 2020-10-15T07:30:00.003-03:00
+
+Link original: https://almyalves.blogspot.com/2020/10/2-tessalonicenses-2-tema-ele-destruira.html
+
+## Conteudo (HTML original)
+
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Angústias quanto ao fim sempre permearam a mente humana gerando inquietações e até transtornos&nbsp; comportamentais. Para proteger a Igreja e acalmar os corações dos crentes, a palavra de Deus nos traz orientações que servirão de norteadores e sinalizadores do que irá acontecer, como irá acontecer e quais sinais anunciam o que já está e estará acontecendo.</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;Na segunda carta aos tessalonicenses, o apóstolo Paulo procura acalmar a Igreja quanto ao futuro e traz palavras de exortação (encorajamento), mas também de direção, para que não fiquemos em pânico e sejamos desnorteados quanto a como proceder.</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;Uma das orientações básicas e acalentadoras é que, antes da volta de Jesus eventos acontecerão, dentre eles, a manifestação do anticristo. Ele será um homem perverso disfarçado de benéfico, cheio de argumentos, poderes, performances que enganarão e seduzirão a muitos.</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; O anticristo se revelará e afirmará ser deus,&nbsp; manifestando raciocínios naturais e poderes sobrenaturais que enganarão&nbsp; a todos que rejeitaram a verdade do Evangelho. Assim, seduzirá a muitos e alguns até apostatarão da fé, por obedecerem a estes ensinos de demônios.&nbsp;</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;Por fim, Ele (Jesus Cristo) através de um sopro de Sua boca destruirá a ele (o anticristo) e o condenará juntamente com todos que preferiram a mentira ao invés da verdade.</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;Esteja atento, pois o espírito do engano já está no mundo e anda seduzindo a muitos. Ao rejeitar a Verdade você está aberto para acolher a mentira, e com ela, as devidas consequências.</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;Na verdade, quem rejeita&nbsp; o certo, estará&nbsp; sendo entregue punitivamente ao espírito do erro&nbsp; e será condenado eternamente.&nbsp;</p><p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;Tanto ele (anticristo), quanto Ele (Jesus Cristo), virão, e você será encontrado de que lado? Com quem irá?</p><p style="text-align: center;"><b>LEIA E OUÇA A BÍBLIA COM ATENÇÃO!!</b></p><p></p><div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiy6ClPg7HaP4ROoylbcZczy8yxmeA_5NRdq4oY1DyaXd2-l0N4Ujcx5V_J-Zrr6JEueiVBOwu1a3m3fxfpeFJUHIHoeLFuXez9Jk3YkrAE4igtB7ARb5qeEdTJYRVygV9vRNh2TPmVGws/" style="margin-left: 1em; margin-right: 1em;"><img data-original-height="653" data-original-width="1024" height="127" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiy6ClPg7HaP4ROoylbcZczy8yxmeA_5NRdq4oY1DyaXd2-l0N4Ujcx5V_J-Zrr6JEueiVBOwu1a3m3fxfpeFJUHIHoeLFuXez9Jk3YkrAE4igtB7ARb5qeEdTJYRVygV9vRNh2TPmVGws/w200-h127/image.png" width="200" /></a></div><br /><br /><p></p>

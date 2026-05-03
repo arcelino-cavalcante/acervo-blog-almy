@@ -1,0 +1,18 @@
+---
+title: "1 Samuel 21. A verdade de Deus não esconde as mentiras dos homens."
+published: 2023-01-16T22:30:00.003-03:00
+updated: 2023-01-16T22:36:45.152-03:00
+url: https://almyalves.blogspot.com/2023/01/1-samuel-21-verdade-de-deus-nao-esconde.html
+slug: 1-samuel-21-verdade-de-deus-nao-esconde.html
+labels: [Mentiras assassinas]
+---
+
+# 1 Samuel 21. A verdade de Deus não esconde as mentiras dos homens.
+
+Publicado em: 2023-01-16T22:30:00.003-03:00
+
+Link original: https://almyalves.blogspot.com/2023/01/1-samuel-21-verdade-de-deus-nao-esconde.html
+
+## Conteudo (HTML original)
+
+<p>&nbsp;<span style="font-family: times;">&nbsp;</span><span style="font-family: times;">&nbsp; &nbsp; &nbsp; &nbsp;O capítulo 21 do primeiro livro de Samuel nos apresenta Davi pecando contra Deus e contra pessoas, mentindo descaradamente, tudo isso para proteger-se de Saul e do rei Aquis.</span></p><p class="MsoNormal"><span style="font-family: times;"><o:p></o:p></span></p><p class="MsoNormal"><span style="font-family: times;"><span style="mso-spacerun: yes;">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span>O que Davi não imaginava é que seria causador da morte de inocentes, pois o Sumo-sacerdote e sua equipe seriam mortos&nbsp;<span style="mso-spacerun: yes;">&nbsp;</span>por acusação de insurreição, quando na verdade não sabiam de nada.<o:p></o:p></span></p><p class="MsoNormal"><span style="font-family: times;"><span style="mso-spacerun: yes;">&nbsp; &nbsp; &nbsp; &nbsp; &nbsp;</span>O salário do pecado sempre será a morte de algo ou de alguém, por isso devemos ter cuidado, pois podemos ser os geradores de grandes prejuízos a pessoas inocentes que se envolvem em problemas por ingenuamente desejarem nos ajudar.<o:p></o:p></span></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"></p><ul><li><span style="font-family: times;"><span style="color: black;">“Então, o rei mandou chamar Aimeleque, sacerdote, filho de Aitube, e toda a casa de seu pai, a saber, os sacerdotes que estavam em Nobe; todos eles vieram ao rei. Disse Saul: Ouve, peço-te, filho de Aitube! Este respondeu: Eis-me aqui, meu senhor! Então, lhe disse Saul: Por que conspirastes contra mim, tu e o filho de Jessé? Pois lhe deste pão e espada e consultaste a favor dele a Deus, para que se levantasse contra mim e me armasse ciladas, como hoje se vê. Respondeu Aimeleque ao rei e disse: E quem, entre todos os teus servos, há tão fiel como Davi, o genro do rei, chefe da tua guarda pessoal e honrado na tua casa? Acaso, é de hoje que consulto a Deus em seu favor? Não! Jamais impute o rei coisa nenhuma a seu servo, nem a toda a casa de meu pai, pois o teu servo de nada soube de tudo isso, nem muito nem pouco. Respondeu o rei: Aimeleque, morrerás, tu e toda a casa de teu pai. Disse o rei aos da guarda, que estavam com ele: Volvei e matai os sacerdotes do SENHOR, porque também estão de mãos dadas com Davi e porque souberam que fugiu e não mo fizeram saber. Porém os servos do rei não quiseram estender as mãos contra os sacerdotes do SENHOR. Então, disse o rei a Doegue: Volve-te e arremete contra os sacerdotes. Então, se virou Doegue, o edomita, e arremeteu contra os sacerdotes, e matou, naquele dia, oitenta e cinco homens que vestiam estola sacerdotal de linho. Também a Nobe, cidade destes sacerdotes, passou a fio de espada: homens, e mulheres, e meninos, e crianças de peito, e bois, e jumentos, e ovelhas.”</span><span style="color: black;">&nbsp;(1Sm 22:11-19 RA)</span></span></li></ul><p></p><p class="MsoNormal" style="line-height: normal; margin-bottom: 0cm; mso-layout-grid-align: none; text-autospace: none;"><span style="color: black; font-family: times;">&nbsp;</span></p>
